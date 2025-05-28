@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @zazobus
-- 👀 I’m interested in GAY PORN
-- 🌱 I’m currently learning HOW TO DO SEX
-- 💞️ I’m looking to collaborate on PORNHUB UwU
-- 📫 How to reach me -
-- 😄 Pronouns: IT/ITS
-- ⚡ Fun fact: IM GAY
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
+- 😄 Pronouns:
+- ⚡ Fun fact:
 
 <!---
 zazobus/zazobus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
